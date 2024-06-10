@@ -1,0 +1,1 @@
+# TugasPraktikum14kecerdasanBuatan_selpia
